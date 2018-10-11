@@ -1,1 +1,1 @@
-# Resume of Maria Teresa T. Marzol
+# Maria Teresa T. Marzol
